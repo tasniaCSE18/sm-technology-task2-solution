@@ -1,0 +1,1 @@
+# sm-technology-task2-solution
